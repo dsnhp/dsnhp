@@ -1,4 +1,3 @@
-### 
 APPLICATION FORM
 DIRECT ENTRY (CERTIFICATE PROGRAM) 
 1.	English, Mathematics, Biology, Chemistry and Physics at least with a pass obtained at the same sitting.
